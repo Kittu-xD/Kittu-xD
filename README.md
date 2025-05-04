@@ -9,7 +9,7 @@
 ---
 - 🐍 I am a Python developer.
 - 🧑‍💻 I’m looking for something new or creating some project. &nbsp;
-- 🥅 2023 Goals: Contribute more to Open Source projects.
+- 🥅 2025 Goals: Contribute more to Open Source projects.
 - 🏆 I'm also having a great interest in competitive programming.
 - 🏐 Fun fact: I love to play Vollyball.
 - 📫 How to reach me: <A HREF="mailto:&#097;&#103;&#103;&#097;&#114;&#119;&#097;&#108;&#107;&#097;&#114;&#116;&#105;&#107;&#054;&#053;&#054;&#064;&#103;&#109;&#097;&#105;&#108;&#046;&#099;&#111;&#109;">&#097;&#103;&#103;&#097;&#114;&#119;&#097;&#108;&#107;&#097;&#114;&#116;&#105;&#107;&#054;&#053;&#054;&#064;&#103;&#109;&#097;&#105;&#108;&#046;&#099;&#111;&#109;</A>
