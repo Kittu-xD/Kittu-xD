@@ -15,7 +15,7 @@
 - 📫 How to reach me: <A HREF="mailto:&#097;&#103;&#103;&#097;&#114;&#119;&#097;&#108;&#107;&#097;&#114;&#116;&#105;&#107;&#054;&#053;&#054;&#064;&#103;&#109;&#097;&#105;&#108;&#046;&#099;&#111;&#109;">&#097;&#103;&#103;&#097;&#114;&#119;&#097;&#108;&#107;&#097;&#114;&#116;&#105;&#107;&#054;&#053;&#054;&#064;&#103;&#109;&#097;&#105;&#108;&#046;&#099;&#111;&#109;</A>
 - 👀 Anime ga suki desu yooooo
 
- <em><b>I love connecting with different people</b> so if you want to say <b>hi, I'll be happy to meet you more!</b> :)</em>
+ <em><b>I love connecting with different people</b> so if you want to say <b>hi, feel free to reach out to me!</b> :)</em>
 
 <br>
 
